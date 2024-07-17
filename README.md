@@ -5,7 +5,7 @@
 - I document my life on Youtube by sharing bits of my life on Youtube
 - 💞️ I’m looking to collaborate on with people from the same niche
 - 📫 You can reach through my Insta 
-- 😄 Pronouns: ...
+- 😄 Pronouns Sabihaa Kanwal
 - ⚡ Fun fact: ...
 
 <!---
